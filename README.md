@@ -1,2 +1,2 @@
 # el-roi
-What God Cannot Do Does Not Exist.
+i love working on titanic dataset.
